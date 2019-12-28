@@ -1,0 +1,1 @@
+https://ddasutein.github.io/autorename-privacy-policy/
